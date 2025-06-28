@@ -1,2 +1,2 @@
-Love coding :D
-Currently a high school student coding for their robotics club and on their own time
+Music Education & Saxophone Performance student at UMass Amherst
+Computer Science Enthusiast
